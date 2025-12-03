@@ -125,16 +125,6 @@ W- arm tortillas → add barbacoa → top with onion, coriander, and a squeeze o
 Salt
 Blend. Done.
 
-If you want, I can also:
+Enjoy!!
 
-Make a shopping list (NL-specific stores)
 
-Adjust for beef cheek only
-
-Make it spicy/mild
-
-Give a step-by-step with timings
-
-Or pair it with a drink (Michelada? Agua fresca?)
-
-Just tell me what vibe you’re going for
